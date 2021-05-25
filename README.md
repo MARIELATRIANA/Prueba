@@ -1,2 +1,0 @@
-# mariela
-estudiante
